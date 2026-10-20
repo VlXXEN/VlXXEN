@@ -2,6 +2,7 @@
  Hi I'm vix ( You can either call me vixxen  or vixpy ( my artist name ) 
  I will MOST likely move my rbyi here once i get used to the codes  ( im lazy rn
  
+
 I like to stay distant mostly , (don't take my absence from time to time  personally , this does NOT mean I Have an issue with anyone )
 
  If you are an Impatient person ,  you are not worth my time . 
