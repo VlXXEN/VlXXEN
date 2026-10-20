@@ -10,7 +10,7 @@ I like to stay distant mostly , (don't take my absence from time to time  person
 
  I'm highly avoidant of dramas , and I don't like picking "sides" , I WILL stay out of any drama , especially because I am not a biased person. 
  
-
+if you respect me, I will in return.
 <!--
 **VlXXEN/VlXXEN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
