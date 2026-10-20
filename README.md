@@ -6,7 +6,8 @@ I like to stay distant mostly , (don't take my absence from time to time  person
 
  If you are an Impatient person ,  you are not worth my time . 
  I do not process my mind well in conflicts , so don't put me on the spot . 
- 
+
+ I will not hesitate to distance myself  if my boundaries get crossed
 
  I'm highly avoidant of dramas , and I don't like picking "sides" , I WILL stay out of any drama , especially because I am not a biased person. 
  
